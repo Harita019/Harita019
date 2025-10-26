@@ -20,6 +20,6 @@ Participate in upcoming hackathons and try to win | 🧱 Master possible program
 🌐 Connect With Me
 
 💼 www.linkedin.com/in/harita-s-t-99b28b381
-🤖http://www.skillrack.com/profile/538232/635eddf5b702ff2130ff2d12cbfaec668baed34e 
+ 🤖http://www.skillrack.com/profile/538232/635eddf5b702ff2130ff2d12cbfaec668baed34e 
 
 
